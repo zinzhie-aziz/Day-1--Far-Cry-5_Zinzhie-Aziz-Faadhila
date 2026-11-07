@@ -20,3 +20,11 @@ Poin-poin penting atau pengetahuan baru yang dipelajari saat workshop: mahasiswa
 
 Pendapat pribadi tentang Day 1 Proyek Workshop: pendapat saya untuk hari 1 HIMATIK itu sangat berinformatif & membantu saya mulai memahami apa berbedaan jurusan lain seperti TI, TMJ, menawarkan. Tetapi aku ada kesulitan untuk mencoba mulai tugas individu kayak lemot, lag, dan lain-lain. 
 
+Dokumentasi & Catatan: 
+<img width="1280" height="960" alt="WhatsApp Image 2026-11-07 at 21 14 13" src="https://github.com/user-attachments/assets/69a87fe7-2455-41ab-a5f9-3a0a412e98a5" />
+
+[WhatsApp Unknown 2026-11-07 at 9.21.50 PM.zip](https://github.com/user-attachments/files/34521162/WhatsApp.Unknown.2026-11-07.at.9.21.50.PM.zip)
+
+
+
+
