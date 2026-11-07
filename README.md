@@ -1,4 +1,4 @@
-# Day-1--Far-Cry-5_Zinzhie-Aziz-Faadhila
+# Day-1-Far-Cry-5_Zinzhie-Aziz-Faadhila
 
 Nama lengkap peserta: Zinzhie Aziz Faadhila.
 
